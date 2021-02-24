@@ -1,6 +1,6 @@
 ### Hi there. Thank for spending your time here. 👋
 
-I am currently a beginner in everything I aspire to be. And I'm so happy about that. It means I am, or at least my soul is, still young. :wink: :grinning:
+I am currently a beginner in everything I aspire to do. And I'm so happy about that. It means I am, or at least my soul is, still young. :wink:
 
 Hope you'll find something helpful or inspiring in my repositories. I'd love any invitation to collaborate with you. :earth_asia: :hand: :earth_americas: :handshake: :earth_africa:
 <!--
